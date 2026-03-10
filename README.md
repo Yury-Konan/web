@@ -10,4 +10,4 @@ https://docs.google.com/spreadsheets/d/1hAgs9-bYuJNSLsCRNAyPxGaOAEzDN5LV/edit?gi
 
 Перехват трафика(видео)
 
-https://drive.google.com/drive/folders/1h2b7WKxJ0c1lEfcYLFPZLGIxK8CiD6_W?hl=ru
+[https://drive.google.com/drive/folders/1h2b7WKxJ0c1lEfcYLFPZLGIxK8CiD6_W?hl=ru](https://drive.google.com/file/d/15eSxUOv3RkdUILLbeNrgGDcQ4oITKmI5/view?usp=sharing)
